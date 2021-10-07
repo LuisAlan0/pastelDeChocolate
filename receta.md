@@ -1,0 +1,5 @@
+En un recipiente debes convinar azúcar, harina, cocoa, polvo para hornear, bicarbonato y sal. Hay que revolver a una velocidad baja con la batidora.
+Agrega la leche, mantequilla y vainilla al recipiente. Hay que batir con la velocidad baja y luego aplicar 2 minutos de velocidad media, agregar los 2 huevos y batir 2 minutos más. Despues hay que tomar un molde al que pondremos engrasado y enharinado.
+Tenemos que hornear a una temperatura de 180°C por 35 o 35 minutos. Al sacarlo del horno y enfriar en una rejilla 10 minutos, despues quitarle el molde y dejarlo enfriar.
+Para el glaseado: derrite chocolate y mantequilla a fuego suave, remover del fuego y agregar azucar en polvo(glass) y el agua caliente, tenemos que batir siempre. Si es necesario, hay que agregar mas agua para tener la consistencia del glaseado.
+Finalmente, cuando tengas el glaseado, hay que dejar escurrir el glaseado por todos los lados y cubrirlo totalmente.
